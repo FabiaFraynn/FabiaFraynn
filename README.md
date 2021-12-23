@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on ... (still in process!)
 - 🤔 I’m looking for help with ... blender
 - 💬 Ask me about ... the Walten files trilogy
-- 📫 How to reach me: ... media below!
+- 📫 How to reach me: ... my webpage!
 - 😄 Pronouns: ... She/Her
 - ⚡ Fun fact: ... I'm silly
 
